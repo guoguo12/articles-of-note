@@ -1,4 +1,4 @@
-# Articles I Love
+# Articles of Note
 
 Because my Chrome bookmarks are overflowing.
 
